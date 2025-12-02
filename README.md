@@ -1,7 +1,7 @@
 
 
 # 💫 About Me:
-## 👋 Hi, I'm Bharat<br><br>I’m a passionate tech enthusiast and a recent **B.Tech graduate**, now actively looking for opportunities to apply my skills and grow professionally.<br><br>### 🔹 About Me<br>- 🎓 **Education:** B.Tech in ( Information Technology)<br>- 💼 **Career Goal:** Ready to work and contribute to real-world projects  <br>- 💡 **Interests:** Software development, problem-solving, and learning modern technologies  <br>- 🤝 **Open to:**  internships, and full-time opportunities  <br>- 📫 **Reach me at:** *(bharatmore6449@gmail.com / LinkedIn)*  <br><br> <br>---<br><br><|br>---<br><br>Thanks for visiting my profile!  <br><br>
+## 👋 Hi, I'm Bharat<br><br>I’m a passionate tech enthusiast and a recent **B.Tech graduate**, now actively looking for opportunities to apply my skills and grow professionally.<br><br>### 🔹 About Me<br>- 🎓 **Education:** B.Tech in ( Information Technology)<br>- 💼 **Career Goal:** Ready to work and contribute to real-world projects  <br>- 💡 **Interests:** Software development, problem-solving, and learning modern technologies  <br>- 🤝 **Open to:**  internships, and full-time opportunities  <br>- 📫 **Reach me at:** *(bharatmore6449@gmail.com / LinkedIn)*  <br><br> <br>---<br><br><br>Thanks for visiting my profile!  <br><br>
 
 
 ## 🌐 Socials:
